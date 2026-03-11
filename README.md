@@ -2,7 +2,7 @@
 
 My name is Igor Luciano de Paula from Brazil (🇧🇷). I've been working as Full-Stack Developer since 2018 and currently I'm Software Developer at [IBM](https://ibm.com).
 
-In my free time I like to play (and watch) soccer (⚽️), to watch movies (🎞️) and series (📺), to read books (📚), to listen to music (🎵) and eventually I like to philosophize about life with a beer (🍺).
+In my free time, I enjoy practicing sports, especially Brazilian Jiu-Jitsu (purple belt), listening to music, watching movies and TV series, and spending quality time with family and friends. I value activities that help me stay active, balanced, and connected with the people around me.
 
 Would you like to find me?
 
